@@ -1,7 +1,7 @@
 ### Salaam! This is Zarmeen Lakhani
 a 21 years old emerging data geek from Pakistan
 
-Thanks for dropping in.
+Thanks for dropping by.
 
 - 🔭 I’m currently working on Data Analytics Projects and am interested in Product Management.
 - 🌱 I’m currently brushing up my Python.
