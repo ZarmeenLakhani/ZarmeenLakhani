@@ -1,4 +1,5 @@
 ### Salaam! This is Zarmeen Lakhani
+a 21 years old emerging data geek from Pakistan
 
 Thanks for dropping in.
 
