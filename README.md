@@ -1,5 +1,5 @@
 ### Salaam! This is Zarmeen Lakhani
-a 21 years old emerging data geek from Pakistan
+a 22 years old business graduate interested in exploring roles in analytics, project management and consulting roles. I strive in a challenging environment.
 
 Thanks for dropping by.
 
