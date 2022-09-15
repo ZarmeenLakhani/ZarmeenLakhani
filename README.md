@@ -1,5 +1,5 @@
 ### Salaam! This is Zarmeen Lakhani
-a 22 years old business graduate interested in exploring roles in analytics, project management and consulting roles. I strive in a challenging environment.
+a 22 years old business graduate interested in exploring roles in analytics, project management and consulting roles. I thrive in a challenging environment.
 
 Thanks for dropping by.
 
